@@ -15,8 +15,8 @@ J'adore et j'ai toujours été intéressé par l'art en général et en 2019 je 
 3 ### [one more night de maroon 5](https://youtu.be/fwK7ggA3-bU?si=Pkmb4-sN2Eb7i5wX) 
 Le rythme de cette chansonpop influencée par le reggae fait qu'on ne pense pas a ce que les paroles veulent vraiment dire, mais on l'écoute pour son «vibe» qui est entrainant. L chanson parle de ne pas s'entendre avec quelqu'un et d'esperer qu'il ne reste avec elle que « one more night» une nuit de plus en francais. Il est construit sur l'idée que le coeur, l'esprit et le corp veulent généralement  des choses opposées.
 
-4 ### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
+4 ### [consume de chase atlantic](https://youtu.be/oCdXuomafSU?si=Cy7h8byd8IZoV8TI) 
+J'aime le fait que un de mes groupes de musique préférer ai fait une chanson inspirer d'un de mes dessins animé japonais préférer. La chanson Consume a été ecit du point d evie du personage principal, Kaneki de Tokyo Ghoul. Elle detaille ses dificultés a accepter qu'il devienne une goule et quil doive consommer des humains pour vivre. 
 
 5 ### Lien 5 
 Expliquer pourquoi vous avez choisi ce lien. 
