@@ -2,10 +2,10 @@
 ## Plan de carrière
 
 ### Présentation
-Je suis née a Shawinigan. J'y ai passe toute mon enfance et adolescence jusqu'au mois de juillet, ou jai déménagé avec ma grand-mère (à Laval) pour le collège. En habitant avec ma grand-mère, je peux apprendre la langue lao puisque malheureusement,je ne la connais pas. 
+Je m'appelle Yasmine Onekeo et j'ai 17ans. Je suis née a Shawinigan. J'y ai passe toute mon enfance et adolescence jusqu'au mois de juillet, ou jai déménagé avec ma grand-mère (à Laval) pour le collège. En habitant avec ma grand-mère, je peux apprendre la langue lao puisque malheureusement,je ne la connais pas. 
 
 ### Intérêts dans le domaine
-le graphisme et la photographie 
+le graphisme, la photographie et la realitee virtuelle
 
 ### Emplois qui vous intéressent
 créateur de jeux video (le côté visuel), designer graphique, photographe 
