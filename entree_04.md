@@ -20,7 +20,7 @@ Ce que j'aime moins de ce métier c'est que l'on doit savoir ce que les utilisat
 
 ### Emploi 3 - Infographiste.
 Concevoir graphiquement les supports à caractère informatif ou promotionnel dans le respect de la charte graphique du groupe. Suivre et contrôler les étapes de la chaîne graphique (interne ou externe). 
-Ils travaillent dans des agences de communication, de design graphique, de publicité Studio de création graphique, de jeux vidéo. Maison d'édition, journal, magazine.
+Ils travaillent dans des agences de communication, de design graphique, de publicité Studio de création graphique, de jeux vidéo, maison d'édition, journal, magazine.
 Avoir un sens artistique développé, maîtriser les outils informatiques, avoir de la patience, de la curiosité et de la créativité. 
 Ce que j'aime de ce métier c'est que ça touche ay design graphique ce en quoi je suis intéressé.
 Ce que j'aime moins de ce métier c'est que l'on doit aller chercher de l'information... c'est long à trouver.
