@@ -3,17 +3,10 @@
 Durée: 8 à 10 minutes
 
 ### Résumer votre projet en une phrase
-Résumer le projet en une phrase concise.   
-
-. un projet en rapport aux poubelles, au recyclage et meme au composte.
+Un projet en rapport aux poubelles, au recyclage et meme au composte.
 
 ### Moodboard
-Montrer nous l'allure visuelle et sonore qu'aura votre projet à l'aide d'un moodboard, de maquettes ou de croquis. 
-
-
-### Technologies
-Décrivez quelles seront les technologies utilisées dans votre projet. 
+Utilisation de couleur distinctive, le scanneur, l'écran tactile, les compartiment multiples formes pour éviter contamination, l'utilisation d'icons et le signal lumineux pour indiquer le bon compartiment 
 
 ### Tâches
-Quelles sont les tâches nécessaires à la réalisation de votre projet? 
-.l'analyse des besoins et des exigences, la visualisation 3D, le conception du système et le développement des capteurs
+L'analyse des besoins et des exigences, la visualisation 3D, le conception du système et le développement des capteurs
