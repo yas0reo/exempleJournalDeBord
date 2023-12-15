@@ -16,4 +16,4 @@ Décrivez quelles seront les technologies utilisées dans votre projet.
 
 ### Tâches
 Quelles sont les tâches nécessaires à la réalisation de votre projet? 
-
+.l'analyse des besoins et des exigences, la visualisation 3D, le conception du système et le développement des capteurs
