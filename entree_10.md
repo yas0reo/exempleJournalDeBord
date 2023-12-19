@@ -1,7 +1,7 @@
 # Entrée 10
 ## Rétrospective de la présentation synthèse (1 à 2 lignes par question)
-Dû a des grèves, nous n'avons pas eu de cours pour faire la presentation de notre projet. Alors je vais prendre la liberté de ne pas réponde aux questions, ne sachant pas quoi répondre à ceux-ci.
-### Points forts de votre présentation -yasmine 
+Dû a des grèves, nous n'avons pas eu de cours pour faire la presentation de notre projet. Alors je vais prendre la liberté de ne pas réponde aux questions, ne sachant pas quoi répondre à ceux-ci.    -yasmine
+### Points forts de votre présentation 
 Nommer deux points forts de votre présentation.
 
 ### Points à améliorer
